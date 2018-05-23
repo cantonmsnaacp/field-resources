@@ -1,0 +1,3 @@
+## note
+
+Written approval from the General Counsel and the President/CEO must be obtained before you lead, participate in, or endorse a boycott, demonstration, picket, rally or coalition. (Please review the attached pages, which come from the NAACP Civil Rights Reference Manual, before completing this request.) All request to take direct action must first be submitted to your Senior VP of programs for recommendation. Immediately upon submitting request to take direct action, please notify NAACP office of general counsel by phone or Email.
